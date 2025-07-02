@@ -1,3 +1,5 @@
-23 y.o. student from Shanghai
+First-year equity strategy analyst, former programmer, roadbike commuter.
+Shanghainese / Mandarin / English OK, 日本語食べません。
 
-Contact: kevin@tianyi.lu
+Business inquiry: lutianyi@citics.com
+Personal contact: kevin@tianyi.lu
